@@ -27,8 +27,7 @@ A total of three hundred and thirty people were selected through random sampling
 
 In conclusion, some findings were made, leading to some conclusions being drawn. Following this, some recommendations have been made to ensure the NHIS has an enhanced contribution to the people’s healthcare.
 
-I. The study revealed that, the implementation of the scheme has generally contributed positively to the people’s healthcare in the municipality. According to three health   
-   information officers, general mortality has significantly reduced in the area since the inception of the scheme. Yet, there are more people who had not been enrolled to benefit   
+I. The study revealed that, the implementation of the scheme has generally contributed positively to the people’s healthcare in the municipality. According to three health information officers, general mortality has significantly reduced in the area since the inception of the scheme. Yet, there are more people who had not been enrolled to benefit   
    from the services of the scheme. In this regard, the paradox in view was why some respondents had not been enrolled and yet they could not afford to pay for their hospital bills  
    out-of-pocket.
    
